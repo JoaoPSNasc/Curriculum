@@ -1,7 +1,7 @@
 # Curriculum
 
  
- JOÃO PEDRO DE SOUZA NASCIMENTO
+JOÃO PEDRO DE SOUZA NASCIMENTO /n
 Idade: 22 anos
 End: Rua: Artidoro Mascarenhas, 142, Bairro Julio de Mesquita.
 Cidade: Sorocaba.
